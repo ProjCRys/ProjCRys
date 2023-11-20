@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ProjCRys
+- 👀 I’m interested in using AI to my projects
+- 🌱 I’m currently learning how to combine Live2D with my virtual assistant
+- 📫 How to reach me: masaiya.projmz.gen0@gmail.com
